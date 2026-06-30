@@ -2,7 +2,7 @@
 as Independent Researcher
 I was recently thinking about tesseracts again — 
 something I hadn’t revisited in years, not since I first watched 
-Carl Sagan explain higher dimensions.Picture : In 1884, Edwin 
+Carl Sagan explain higher dimensions video : In 1884, Edwin 
 Abbott Abbott wrote Flatland. In that two-dimensional world, its 
 inhabitants can only perceive slices of our three-dimensional 
 reality. We can look down into their entire world, but they 
