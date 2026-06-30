@@ -1,5 +1,5 @@
 # The-Paper-Beyond-the-Shadow-A-Study-on-Dimensional-Perspective-
-Independent Researcher
+as Independent Researcher
 I was recently thinking about tesseracts again — 
 something I hadn’t revisited in years, not since I first watched 
 Carl Sagan explain higher dimensions.Picture : In 1884, Edwin 
